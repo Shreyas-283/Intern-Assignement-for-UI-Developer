@@ -5,4 +5,4 @@ Follqw this Steps
 2. Connect with Internet
 3. open .html file
 4. Done !!!
-5. Any Query Just DM me
+5. Any Query Just DM me @ shreyashirulkar@17gmail.com
